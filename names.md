@@ -1,4 +1,4 @@
 Offenbächer Géza  
 Geng Julián  
-Urbán Regina  
-Kuborcik Ádám 
+Urbán Regina
+Mohai Ferenc
